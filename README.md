@@ -1,0 +1,2 @@
+# latihanagun
+ayo
